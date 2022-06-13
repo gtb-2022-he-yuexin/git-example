@@ -1,3 +1,3 @@
 It's the first time for push.
 
-Heyuexin email：heyuexin86@gmail.com
+Yuexin HE, heyuexin86@gmail.com
